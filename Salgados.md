@@ -1,7 +1,7 @@
 [[_000 Home]]
 [[_020 Culinary]]
 
-# Salts
+# Salgados
 
 ## Lasanha Ao Molho de Calabresa
 ****

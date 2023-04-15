@@ -1,7 +1,7 @@
 [[_000 Home]]
 [[_020 Culinary]]
 
-# Breads
+# Pães
 
 ## Pão de alho e cenoura
 

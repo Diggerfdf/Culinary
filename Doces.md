@@ -1,7 +1,7 @@
 [[_000 Home]]
 [[_020 Culinary]]
 
-# Desserts & Sweets
+# Doces e Sobremesas
 
 ## Cookies
 
