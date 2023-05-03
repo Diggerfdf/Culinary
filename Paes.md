@@ -1,5 +1,5 @@
 [[_000 Home]]
-[[_020 Culinary]]
+[[_070 Culinary]]
 
 # Pães
 
@@ -139,6 +139,142 @@
 - Enrole-os como um rocambole e coloque-os em uma fôrma retangular grande previamente untada. Cubra com um pano e deixe crescer até dobrar de volume (cerca de uma hora)
 
 - Depois, pincele a gema e leve para assar em forno médio e pré-aquecido até dourar (cerca de 40 minutos). Sirva em seguida
+
+## Pão Fino (estilo Rap10)
+
+**Ingredientes**
+
+- 350g de farinha peneirada
+
+- 5g de açúcar (1 colher de chá)
+
+- 5g de sal (1 colher de chá)
+
+- 30ml de azeite de oliva (2 colheres de sopa)
+
+- 100ml de água fervente
+
+- 100ml de leite quente
+
+**Modo de preparo**
+
+- Mexa com uma colher.
+
+- Sove a massa à mão por 2 minutos. 
+
+- A massa é macia, mas não é grudenta.
+
+- Salpique farinha na mesa e modele a massa no formato de cilindro.
+
+- Divida a massa em 10 partes no formato de Bola.
+
+- Mantenha a massa coberta para não secar enquanto você trabalha.
+- Abra a massa bem fina, do tamanho da frigideira, cerca de 25cm, cortando um círculo perfeito.
+
+- Aqueça a frigideira em fogo médio, tostando a massa por cerca de 40 segundos cada lado, e vire. Repita o processo por 2 minutos. Preste atenção para não deixar a massa seca e torrada.
+
+- Enquanto uma massa está tostando, abra a próxima, muito rapidamente.
+
+- Coloque o pão quente num prato e "escove" os dois lados com água fervente, especialmente nas bordas. Coloque num saco plástico para alimentos e cubra com uma toalha para que o pão fique no vapor.
+
+- Prepare o resto da massa, pode surgir algumas bolhas, mas isso é normal.
+
+- Quando o último pão estiver pronto, cubra por 30 minutos, a massa é muito macia e não vai quebrar.
+
+Dura 3 dias na geladeira.
+
+## Pão Turco
+
+[FAMOUS Turkish bread That Is Driving The World Crazy!](https://www.youtube.com/watch?v=jnR5jT_SaRI)
+
+**Ingredientes**
+
+- 570g de farinha
+
+- 400ml de água morna
+
+- 3g de açúcar (½ colher de chá)
+
+- 5g de sal (1 colher de chá)
+
+- 100g de manteiga
+
+- 50ml de azeite de oliva, ou qualquer óleo vegetal (⅕ xícara)
+
+**Modo de preparo**
+
+- Peneire a farinha numa tigela.
+
+- Misture a água morna, sal e o acúcar em outro recipiente, adicione a farinha aos poucos.
+
+- Sove a massa à mão por alguns minutos. Se a massa estiver muito grudenta, coloque um pouco a mais de farinha.
+
+- Cubra a massa e deixe descansar por 15 minutos.
+
+- Divida a massa em 8 partes iguais, modele as bolas, deixe descansar, cobrindo para não secar a massa.
+
+- Abra a massa num grande retângulo, bem fino.
+
+- Derreta a manteiga e adicione o azeite/óleo.
+
+- Pincele a massa com a manteiga e enrole a massa cuidadosamente, num formato de cilindro.
+
+-  Faça com a massa um Caracol, pressionando levemente no final para manter a forma.
+
+- Abra a massa e corte no tamanho da frigideira (cerca de 23cm).
+
+- Unte a frigideira com azeite/óleo e coloque a massa, fogo médio.
+
+- Pincele a manteiga, vire a massa até que esteja dourada, cerca de 2 minutos para cada pão.
+
+## Pão Café da manhã (Stompekake - Norway)
+
+[Delicious Bread For Breakfast](https://www.youtube.com/watch?v=4-wAckalSCc)
+
+**Ingredientes**
+
+- 200ml água morna (1 xícara)
+
+- 10g fermento biológico instantâneo (1 colher de sopa)
+
+- 4 colheres de sopa de açúcar
+
+- 60ml óleo vegetal (⅓ xícara)
+
+- 200ml leite morno (1 xícara)
+
+- ½ colher de sopa de sal
+
+- 600g de farinha, mais, aproximadamente, de 30 a 50g para trabalhar a massa
+
+- 100g de manteiga
+
+**Modo de Preparo**
+
+- Adicione a água morna, o fermento, o açúcar e o óleo vegetal numa tigela, misturando-os bem. Cubra o fermento líquido por 10 minutos.
+
+- Numa outra tigela, misture o leite e o sal, arejando bem a mistura.
+
+- Despeje o leite na bacia com o fermento, e misture bem.
+
+- Peneire a farinha na bacia e misture com uma colher.
+
+- Deixe a massa crescer por 45 minutos num vasilhame tampado.
+
+- Transfira a massa para a mesa e divida-a em 12 partes.
+
+- Faça 12 bolas com a massa.
+
+- Corte 100g de manteiga em 8 partes
+
+- Coloque cada parte de manteiga sobre uma bola de massa. Achate a massa com os dedos, espalhando a manteiga na massa.
+
+- Empilhe 3 massas, repetindo o processo, dobre e estique um pouco a massa, repetindo os processo algumas vezes, não é necessário uma forma perfeita.
+
+- Coloque a massa numa frigideira (sugestão, de ferro), frite os 2 lados do pão por cerca de 3 minutos. Fure com um palito de dentes para liberar o ar.
+
+- Cheque a massa para não queimar. Estará pronto quando os dois lados estiverem dourados.
+
 
 ## Hambúrguer
 
