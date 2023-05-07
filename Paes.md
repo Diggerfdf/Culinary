@@ -216,7 +216,9 @@ Forma para torta, fundo removível 25x6
 
 ---
 
-## Pão Fino (estilo Rap10)
+## Pão Fino #1 - Grandma
+
+[FLOUR + BOILING WATER! Thin Bread is INCREDIBLY Recipe Grandma Taught!](https://www.youtube.com/watch?v=kO4RZF8_xT8)
 
 **Ingredientes**
 
@@ -234,22 +236,25 @@ Forma para torta, fundo removível 25x6
 
 **Modo de preparo**
 
+- Peneire a farinha e adicione o açúcar, sal, azeite de oliva a água e leite.
+
 - Mexa com uma colher.
 
-- Sove a massa à mão por 2 minutos. 
+- Sove a massa à mão por 2 minutos. A massa é macia, mas não é grudenta.
 
-- A massa é macia, mas não é grudenta.
+- Cubra a massa com um plástico filme e deixe descansar por 15 minutos
 
 - Salpique farinha na mesa e modele a massa no formato de cilindro.
 
-- Divida a massa em 10 partes no formato de Bola.
+- Divida a massa em 10 partes e modele cada parte no formato de Bola.
 
 - Mantenha a massa coberta para não secar enquanto você trabalha.
+
 - Abra a massa bem fina, do tamanho da frigideira, cerca de 25cm, cortando um círculo perfeito.
 
 - Aqueça a frigideira em fogo médio, tostando a massa por cerca de 40 segundos cada lado, e vire. Repita o processo por 2 minutos. Preste atenção para não deixar a massa seca e torrada.
 
-- Enquanto uma massa está tostando, abra a próxima, muito rapidamente.
+- Enquanto uma massa está tostando, abra rapidamente a próxima.
 
 - Coloque o pão quente num prato e "escove" os dois lados com água fervente, especialmente nas bordas. Coloque num saco plástico para alimentos e cubra com uma toalha para que o pão fique no vapor.
 
@@ -258,6 +263,34 @@ Forma para torta, fundo removível 25x6
 - Quando o último pão estiver pronto, cubra por 30 minutos, a massa é muito macia e não vai quebrar.
 
 Dura 3 dias na geladeira.
+
+___
+
+## Pão Fino com Espinafre
+
+[Thin Bread and Spinach](https://www.youtube.com/watch?v=sULs-n-oVGI)
+
+**Ingredientes**
+
+2½ xícaras de farinha
+1 colher de sopa de sal
+1 colher de sopa de bicarbonato de sódio
+3 colheres de sopa de azeite de oliva
+150ml água morna (⅘ xícara)
+100g de espinafre
+
+**Modo de Preparo**
+
+- Peneire a farinha numa tigela, adicione o sal e o bicarbonato de sódio, misture. Adicione o azeite.
+- Coloque a água e o espinafre no liquidificador. Bata até liquefazer a mistura.
+- Adicione o espinafre na farinha e mexa muito bem. Se a massa estiver muito grudenta, adicione um pouco mais de farinha, aos pouco.
+- Sove a massa por 3 minutos. A massa é macia e elástica. Cubra e deixe descansar por 15 minutos.
+- Divida a massa em 8 partes iguais. Cubra a massa para não secar.
+- Abra a massa e corte no mesmo diâmetro da frigideira.
+- Numa frigideira sem óleo, cozinhe em fogo médio, vire a massa de vez em quando para dourar dos dois lados, por aproximadamente 2 minutos.
+- Imediatamente, pincele água quente dos dois lados da massa. Cubra com um plástico e uma toalha para que o vapor deixe a massa macia e elástica.
+
+---
 
 ## Pão Turco
 
@@ -350,6 +383,38 @@ Dura 3 dias na geladeira.
 - Coloque a massa numa frigideira (sugestão, de ferro), frite os 2 lados do pão por cerca de 3 minutos. Fure com um palito de dentes para liberar o ar.
 
 - Cheque a massa para não queimar. Estará pronto quando os dois lados estiverem dourados.
+
+---
+
+## Pão com Ervas Achatado
+
+[Recipe for Herb Flatbreads in a Pan](https://www.youtube.com/watch?v=Zh9grs1WyiE)
+
+**Ingredientes**
+
+- 300ml água morna (1⅕ xícara)
+- 1 colher de sopa de sal
+- 480g de farinha (3 xícaras)
+- 100g de rúcula
+- 1 maço pequeno de Salsa
+- Sal e pimenta do reino à gosto
+- 150g de manteiga
+
+**Modo de preparo**
+
+- Numa tigela coloque a água morna e sal e misture para dissolver.
+- Em outra tigela, peneire a farinha e despeja a água aos poucos, enquanto mistura com uma colher.
+- Sove bem a massa por alguns minutos. Cubra a massa e deixe descansar por 15 minutos.
+- Pique a rúcula e a salsa. Tempere com o sal e a pimente numa tigela.
+- Derreta a manteiga.
+- Salpique farinha na mesa e divida a massa em 6 partes, moldando em forma de bolas.
+- Mantenha a massa coberta para não secar.
+- Abra a massa bem fina, num formato retangular. Passe a manteiga por toda a superfície do pão, salpique as ervas.
+- Dobre a massa (do topo até a metade, da parte inferior até a metade). Passe manteiga, salpique as ervas, e dobre, novamente até a metade.
+- Achate a massa com o cilindro até que esteja com 18cm. Arrume a massa usando o cortador para que fique um quadrado perfeito.
+- Frite a massa até que esteja dourada nos dois lados. Vire de vez em quando, tempo de preparo 2~3 minutos.
+
+
 
 
 ## Hambúrguer
