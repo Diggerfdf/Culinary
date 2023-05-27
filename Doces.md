@@ -1,5 +1,5 @@
-[[_000 Home]]
-[[_070 Culinary]]
+[[_000 Home 🏡]]
+[[_050 Culinary 🍞]]
 
 # Doces e Sobremesas
 
@@ -669,7 +669,31 @@ Se preferir, acrescente meia xícara de chá de nozes trituradas à massa
 
 3 - Asse em forno quente até dourar. Quando estiver morna, polvilhe com açúcar peneirado.
 
-### Petit gâteau - [site](https://entretenimento.band.uol.com.br/melhordatarde/receitas/100000968835/petit-gateau)
+### Sobremesa de Banana prática - [site](https://www.youtube.com/watch?v=csdyOxYGRUo)
+
+**Ingredientes**
+
+- Massa Folhada
+- 3 Bananas
+- Leite
+- Açúcar Mascavo
+- Canela (opcional)
+
+**Modo de Preparo**
+
+- Fatie as bananas em rodelas não muito finas
+
+- Abra a massa folhada e enfileire as bananas, deixando um espaço entre elas, passe o leite com um pincel na outro ponta. Enrole a massa como se fosse um rocambole.
+
+- Fatie a massa em pedaços de cerca de 1cm. Pincele leite nesses pedaços. Coloque um pouco de açúcar mascavo por cima.
+
+- Asse com o forno a 230℃ for 15~20 minutes.
+
+- Deixe descansar na grelha. Sirva em seguida.
+
+---
+
+## Petit gâteau - [site](https://entretenimento.band.uol.com.br/melhordatarde/receitas/100000968835/petit-gateau)
 
 **Ingredientes**
 
@@ -712,3 +736,6 @@ Se preferir, acrescente meia xícara de chá de nozes trituradas à massa
 **Tempo de preparo**
 
 15 minutos
+
+---
+

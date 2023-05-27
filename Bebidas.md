@@ -1,5 +1,5 @@
-[[_000 Home]]
-[[_070 Culinary]]
+[[_000 Home 🏡]]
+[[_050 Culinary 🍞]]
 
 # Bebidas
 
