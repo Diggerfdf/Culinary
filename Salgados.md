@@ -568,6 +568,12 @@
 
 ---
 
+## Filé de Frango Grelhado
+
+[Filé de Frango Grelhado - Como fazer tempero para filé de frango](https://www.youtube.com/watch?v=ujr9WLxgX8Q)
+
+---
+
 ## Torta cremosa de peito de peru com queijo - [site](https://entretenimento.band.uol.com.br/melhordatarde/receitas/tortas-e-salgados/100000954017/torta-cremosa-de-peito-de-peru-com-queijo)
 
 **Ingredientes**
@@ -914,7 +920,7 @@ Sirva com azeite. Folhas de hortelã e cebola são excelentes acompanhamentos pa
 
 ---
 
-[COMO FAZER FRANGO DO KFC EM CASA - SEGREDOS REVELADOS - YouTube](https://www.youtube.com/watch?v=34lGvp0kTrY)
+[COMO FAZER FRANGO DO KFC EM CASA - SEGREDOS REVELADOS](https://www.youtube.com/watch?v=34lGvp0kTrY)
 
 
 ## Sanduíches

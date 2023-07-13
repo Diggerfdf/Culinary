@@ -28,3 +28,13 @@
 **Modo de Preparo**
 
 - Em uma panela, refogue a cebola e o alho com um pouco de óleo ou manteiga. Em seguida, acrescente todos os outros ingredientes e mexa. Espere reduzir e engrossar. Está pronto seu molho barbecue caseiro.
+
+
+## Teriyaki
+
+[Easy Teriyaki Sauce Recipe - How to Make Teriyaki Sauce at Home](https://www.youtube.com/watch?v=cTmGl-1lpUE)
+
+[How to make Teriyaki sauce](https://www.youtube.com/watch?v=6lrTSa4RCYs)
+
+[Hiroyuki Terada - Diaries of a Master Sushi Chef](https://www.youtube.com/@DiariesofaMasterSushiChef)
+
